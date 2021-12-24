@@ -1,2 +1,1 @@
-## hi 🥺 👉 👈
- 😤 my 👊 name is ibrahim 💯, a 16 year old 🥵 gcse 🥶 student. 
+### hi 👋 my 🙌 name 📋 is 😄 ibrahim ☪️ a 👏 16 🔞 year 📆 old 🥵 gcse 🏫 student.
